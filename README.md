@@ -1,2 +1,2 @@
 # Lotus
-The hardest part of not perfect creator for he's destiny. 
+Sang pujangga yang begitu mencintai terkasih nya. . 
